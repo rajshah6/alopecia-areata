@@ -1,2 +1,2 @@
-# Link to Website: rajshah6.github.io/AlopeciaAreataWebsite/
+# Link to Website: rajshah6.github.io/alopecia-areata/
  
